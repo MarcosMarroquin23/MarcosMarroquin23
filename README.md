@@ -54,7 +54,7 @@ Con muchas ganas de obtener mi primera oportunidad en el mundo del desarrollo de
 
 
 
-## 💡 Habilidades blandas
+## 💡 Habilidades 
 
 Adaptabilidad · Aprendizaje rápido · Comunicación en equipo · Organización y planificación · Compromiso
 
